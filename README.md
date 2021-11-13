@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Osman Enayat
+- 👋 Hi, I’m Osman Enayat
 - 👀 I’m interested in what ?
 - 🌱 I’m currently learning to Code
 - 💞️ I’m looking to collaborate on Broad Variety of  projects
