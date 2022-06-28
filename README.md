@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Osman Enayat
 - 👀 I’m interested in what ?
-- 🌱 I’m currently learning to Code
+- 🌱 currently write Code
 - 💞️ I’m looking to collaborate on Broad Variety of  projects
 - 📫 DM ibneenayat1998@gmail.com
 
